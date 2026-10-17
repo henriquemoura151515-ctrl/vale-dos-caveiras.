@@ -1,1 +1,0 @@
-# vale-dos-caveiras.
